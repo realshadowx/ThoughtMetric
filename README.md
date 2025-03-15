@@ -4,9 +4,10 @@ Hello folks, Amir here.
 
 ThoughtMetric provides cutting-edge insights into your web traffic, conversions, and more, helping you make data-driven decisions for growth.
 
-If you’re ready to take your business to the next level, you’re in luck! In this article, we’ll walk you through the best [ThoughtMetric coupon codes](https://bit.ly/4igC6f2), show you how to redeem them, and explain how much you can save.
+If you’re ready to take your business to the next level, you’re in luck! In this article, we’ll walk you through the best [ThoughtMetric coupon codes](https://thoughtmetric.io/?fpr=shadow), show you how to redeem them, and explain how much you can save.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdxvlVzpYSDDhKC5ZjhDlqByN_sYh83blZ4JEC5ZBJsDuAoWHLDzDAqZX0P1SlJYF21vsM3Cspfh58EQa3PX8EfV_wY2AwgIF29jNsj82Jm_t-34jbctRQghUNUULgCxihqWIXHmQ?key=o0exu-AJpxwalsWzZwp3M6EM)](https://bit.ly/4igC6f2)
+[![Discount button](https://github.com/user-attachments/assets/6522aca9-9025-4eb2-8ae9-149f1d00bffe)](https://thoughtmetric.io/?fpr=shadow)
+
 
 ## Top ThoughtMetric Coupon Codes
 
@@ -16,31 +17,31 @@ Here are some of the best ThoughtMetric coupon codes that can help you get great
 
 * Discount Details: Save 10% on any ThoughtMetric subscription.
 * Applicable Products/Services: This code applies to all ThoughtMetric subscription plans, from the Basic to the Enterprise level.
-* Expiry Date: Valid until [Insert Date].
+* Expiry Date: Valid until 05/07/2025.
 * How to Use the Code: Enter the code during checkout to get 10% off your ThoughtMetric subscription.
 
 #### Coupon Code: METRIC20
 
 * Discount Details: Get 20% off your first month of ThoughtMetric’s Premium plan.
 * Applicable Products/Services: This discount applies to the Premium plan for new users.
-* Expiry Date: Offer valid until [Insert Date].
+* Expiry Date: Offer valid until 05/07/2025.
 * How to Use the Code: Use this code when subscribing to the Premium plan to get 20% off your first month.
 
 #### Coupon Code: THOUGHT30
 
 * Discount Details: Save 30% on ThoughtMetric’s annual subscription.
 * Applicable Products/Services: This code applies to any annual subscription plan.
-* Expiry Date: Available until [Insert Date].
+* Expiry Date: Available until 05/07/2025.
 * How to Use the Code: Enter the code when signing up for an annual subscription to save 30%.
 
 #### Coupon Code: BUNDLE25
 
 * Discount Details: Save 25% on the ThoughtMetric analytics tool bundle.
 * Applicable Products/Services: This discount applies to the bundle that includes multiple features like traffic analysis, conversion tracking, and A/B testing.
-* Expiry Date: Valid until [Insert Date].
+* Expiry Date: Valid until 05/07/2025.
 * How to Use the Code: Apply the code at checkout when purchasing the ThoughtMetric tool bundle to save 25%.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdxvlVzpYSDDhKC5ZjhDlqByN_sYh83blZ4JEC5ZBJsDuAoWHLDzDAqZX0P1SlJYF21vsM3Cspfh58EQa3PX8EfV_wY2AwgIF29jNsj82Jm_t-34jbctRQghUNUULgCxihqWIXHmQ?key=o0exu-AJpxwalsWzZwp3M6EM)](https://bit.ly/4igC6f2)
+[![Discount button](https://github.com/user-attachments/assets/6522aca9-9025-4eb2-8ae9-149f1d00bffe)](https://thoughtmetric.io/?fpr=shadow)
 
 ## How to Redeem ThoughtMetric Coupon Codes?
 
@@ -58,8 +59,7 @@ Once you’ve selected your plan, proceed to checkout. You’ll be prompted to e
 4. Step 4: Confirm Your Savings
 After entering the code, you’ll see the discount reflected in the total price. Make sure everything looks good, then finalize your purchase to complete the checkout process.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdxvlVzpYSDDhKC5ZjhDlqByN_sYh83blZ4JEC5ZBJsDuAoWHLDzDAqZX0P1SlJYF21vsM3Cspfh58EQa3PX8EfV_wY2AwgIF29jNsj82Jm_t-34jbctRQghUNUULgCxihqWIXHmQ?key=o0exu-AJpxwalsWzZwp3M6EM)
-](https://bit.ly/4igC6f2)
+[![Discount button](https://github.com/user-attachments/assets/6522aca9-9025-4eb2-8ae9-149f1d00bffe)](https://thoughtmetric.io/?fpr=shadow)
 
 ## Pricing Information & How Much You Can Save
 
